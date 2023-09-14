@@ -1,8 +1,8 @@
 nhayesAlus
 
 Nigel Hayes
-Digital Summer Intern
-5/31 – 8/5
+Junior Software Developer @ Altus Power
+07/31-Present
 
 Before joining Altus in 2022, Nigel worked at Wesleyan University as a Residential Advisor. Additionally, Nigel works as a Course Assistant and Admissions Clerical Assistant at his University.  
 
